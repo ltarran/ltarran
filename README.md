@@ -3,3 +3,6 @@
 - **X-teams at Shipt HQ**
 - **Mother of dogs & Avid gamer**
 - **Love of fantasy fiction**
+
+
+I use to make great myspace and angelfires back in the day
